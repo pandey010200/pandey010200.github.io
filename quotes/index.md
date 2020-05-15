@@ -3,9 +3,9 @@ layout: default
 title: Quotes
 ---
 >I am voting for Biden because elections have consequences. If Trump gets another term it will be the end to any progressive legislation for the next generation.
-
+>
 >I had a college Political Science professor post this comment:
-
+>
 >National elections are first and foremost about policy choices that will impact millions of people's lives. Case in point, the "election" of George Bush over Al Gore in 2000 resulted in profoundly consequential policy differences. A few hundred votes in Florida (and the pre-election suppression of thousands of others) resulted in the U.S. withdrawing from the Kyoto Protocol to reduce CO2 emissions, a massive tax cut for the wealthy that wiped out an historic budget surplus, and an illegal and disastrous war in Iraq. All of those choices would have gone differently under a Gore administration.
 
 >In 2004, Al Gore was accused of sexual assault by a masseuse in Oregon. I am not in a position to judge whether the accusation was true. I hope it wasn't. I worked for Al Gore as a Senate intern and have admired him for decades as a champion of the environment. If he did what he was accused of, it would be sorely disappointing. It also would not alter my conviction that the dubious election of George W. Bush was catastrophic.
