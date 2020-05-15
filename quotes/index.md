@@ -19,7 +19,7 @@ title: Quotes
 >I think it perfectly encapsulates what an election can mean and if you chose to vote third party or skip the election you should be fully informed of what it means.
 >
 >If you can't see whats at stake you are a fool. [Permalink](https://www.reddit.com/r/GamerGhazi/comments/gacx1x/womens_groups_go_silent_on_biden_assault/fozma17/)
----
+
 >"There is a considerable overlap between the intelligence of the smartest bears and the dumbest tourists." - Yosemite Park Ranger on why it's hard to design a bear-proof garbage can. [Permalink](https://www.reddit.com/r/AskReddit/comments/gk8t35/george_carlin_said_think_of_how_stupid_the/fqpz3yi/)
----
+
 >"I used to try and educate people like this, then I realized it's like playing chess with a Pigeon. They'll just shit all over the board and strut around like they've won regardless." [Permalink](https://www.reddit.com/r/AskReddit/comments/gk8t35/george_carlin_said_think_of_how_stupid_the/fqq6vh0/)
